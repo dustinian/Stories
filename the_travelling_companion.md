@@ -1,4 +1,10 @@
-THE TRAVELLING COMPANION
+The Travelling Companion
+========================
+
+
+
+John's father dies.
+-------------------
 
 Poor John was very sad; for his father was so ill, he had no
 hope of his recovery. John sat alone with the sick man in the little
@@ -55,6 +61,11 @@ brought it there in the evening, he found the grave decked out with
 gravel and flowers. Strangers had done this; they who had known the
 good old father who was now dead, and who had loved him very much.
 
+
+
+John travels.
+-------------
+
 Early the next morning, John packed up his little bundle of
 clothes, and placed all his money, which consisted of fifty dollars
 and a few shillings, in his girdle; with this he determined to try his
@@ -92,7 +103,13 @@ of wild roses looked like garlands on the walls; and for a bath he
 could have the clear, fresh water of the brook; while the rushes bowed
 their heads to him, to wish him good morning and good evening. The
 moon, like a large lamp, hung high up in the blue ceiling, and he
-had no fear of its setting fire to his curtains. John slept here quite
+had no fear of its setting fire to his curtains.
+
+
+John Goes to Church.
+--------------------
+
+John slept here quite
 safely all night; and when he awoke, the sun was up, and all the
 little birds were singing round him, "Good morning, good morning.
 Are you not up yet?"
@@ -123,7 +140,12 @@ rest."
 So he went in, and seated himself; then he folded his hands, and
 offered up his evening prayer, and was soon fast asleep and
 dreaming, while the thunder rolled and the lightning flashed
-without. When he awoke, it was still night; but the storm had
+without.
+
+John intervenes.
+----------------
+
+When he awoke, it was still night; but the storm had
 ceased, and the moon shone in upon him through the windows. Then he
 saw an open coffin standing in the centre of the church, which
 contained a dead man, waiting for burial. John was not at all timid;
@@ -176,6 +198,11 @@ This continued till sunrise. Then the little elves crept into the
 flower-buds, and the wind seized the bridges and palaces, and
 fluttered them in the air like cobwebs.
 
+
+
+John meets his companion.
+-------------------------
+
 As John left the wood, a strong man's voice called after him,
 "Hallo, comrade, where are you travelling?"
 
@@ -189,7 +216,13 @@ neither father nor mother, but God will help me."
 they began to like each other very much, for they were both good;
 but John found out that the stranger was much more clever than
 himself. He had travelled all over the world, and could describe
-almost everything. The sun was high in the heavens when they seated
+almost everything.
+
+
+Companion collects three ferns.
+-------------------------------
+
+The sun was high in the heavens when they seated
 themselves under a large tree to eat their breakfast, and at the
 same moment an old woman came towards them. She was very old and
 almost bent double. She leaned upon a stick and carried on her back
@@ -219,6 +252,11 @@ his fellow-traveller.
 "Oh, they will make capital brooms," said he; "and I like them
 because I have strange whims sometimes." Then they walked on
 together for a long distance.
+
+
+
+Companion collects a sword.
+---------------------------
 
 "How dark the sky is becoming," said John; "and look at those
 thick, heavy clouds."
@@ -288,7 +326,14 @@ in the room could not help joining in the dance. The coachman danced
 with the cook, and the waiters with the chambermaids, and all the
 strangers joined; even the tongs and the fire-shovel made an
 attempt, but they fell down after the first jump. So after all it
-was a very merry night. The next morning John and his companion left
+was a very merry night.
+
+
+
+Companion collects wings.
+-------------------------
+
+The next morning John and his companion left
 the inn to continue their journey through the great pine-forests and
 over the high mountains. They arrived at last at such a great height
 that towns and villages lay beneath them, and the church steeples
@@ -315,6 +360,10 @@ You see now that a sword will be very useful."
 
 So he cut off the wings of the dead swan with one blow, and
 carried them away with him.
+
+
+John sees the princess.
+-----------------------
 
 They now continued their journey over the mountains for many
 miles, till they at length reached a large city, containing hundreds
@@ -365,6 +414,11 @@ her hand looked like a sunbeam. The golden crown on her head glittered
 like the stars of heaven, and her mantle was formed of thousands of
 butterflies' wings sewn together. Yet she herself was more beautiful
 than all.
+
+
+
+John decides to marry the princess.
+-----------------------------------
 
 When John saw her, his face became as red as a drop of blood,
 and he could scarcely utter a word. The princess looked exactly like
