@@ -498,6 +498,9 @@ priests were on their knees in the church. There was a great
 lamentation, for no one expected John to succeed better than those who
 had been suitors before.
 
+Companion prepares first task.
+------------------------------
+
 In the evening John's comrade prepared a large bowl of punch,
 and said, "Now let us be merry, and drink to the health of the
 princess." But after drinking two glasses, John became so sleepy, that
