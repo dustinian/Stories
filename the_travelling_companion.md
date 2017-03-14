@@ -1,6 +1,28 @@
 The Travelling Companion
 ========================
 
+Outline
+-------
+* John's father dies.
+* John travels.
+* John Goes to church.
+* John intervenes.
+* John meets his companion.
+* Companion collects three ferns.
+* Companion collects a sword.
+* Companion collects wings.
+* John sees the princess.
+* John decides to marry the princess.
+* Companion prepares first task.
+* John completes the first task.
+* Companion prepares second task.
+* John completes the second task.
+* Companion prepares third task.
+* John completes the third task.
+* John frees the princess.
+* Companion says farewell.
+* Denoument.
+
 
 
 John's father dies.
@@ -106,7 +128,7 @@ moon, like a large lamp, hung high up in the blue ceiling, and he
 had no fear of its setting fire to his curtains.
 
 
-John Goes to Church.
+John Goes to church.
 --------------------
 
 John slept here quite
@@ -498,6 +520,8 @@ priests were on their knees in the church. There was a great
 lamentation, for no one expected John to succeed better than those who
 had been suitors before.
 
+
+
 Companion prepares first task.
 ------------------------------
 
@@ -574,6 +598,12 @@ The magician then opened the mountain and she flew home again, but
 the traveller followed and flogged her so much with the rod, that
 she sighed quite deeply about the heavy hail-storm, and made as much
 haste as she could to get back to her bedroom through the window.
+
+
+
+John completes the first task.
+------------------------------
+
 The traveller then returned to the inn where John still slept, took
 off his wings and laid down on the bed, for he was very tired. Early
 in the morning John awoke, and when his fellow-traveller got up, he
@@ -604,13 +634,26 @@ the people clapped their hands, both on his account and John's, who
 had guessed rightly the first time. His fellow-traveller was glad
 also, when he heard how successful John had been. But John folded
 his hands, and thanked God, who, he felt quite sure, would help him
-again; and he knew he had to guess twice more. The evening passed
+again; and he knew he had to guess twice more.
+
+
+
+Companion prepares the second task.
+-----------------------------------
+
+The evening passed
 pleasantly like the one preceding. While John slept, his companion
 flew behind the princess to the mountain, and flogged her even
 harder than before; this time he had taken two rods with him. No one
 saw him go in with her, and he heard all that was said. The princess
 this time was to think of a glove, and he told John as if he had again
-heard it in a dream. The next day, therefore, he was able to guess
+heard it in a dream.
+
+
+John completes the second task.
+-------------------------------
+
+The next day, therefore, he was able to guess
 correctly the second time, and it caused great rejoicing at the
 palace. The whole court jumped about as they had seen the king do
 the day before, but the princess lay on the sofa, and would not say
@@ -618,7 +661,14 @@ a single word. All now depended upon John. If he only guessed
 rightly the third time, he would marry the princess, and reign over
 the kingdom after the death of the old king: but if he failed, he
 would lose his life, and the magician would have his beautiful blue
-eyes. That evening John said his prayers and went to bed very early,
+eyes.
+
+
+
+Companion prepares the third task.
+----------------------------------
+
+That evening John said his prayers and went to bed very early,
 and soon fell asleep calmly. But his companion tied on his wings to
 his shoulders, took three rods, and, with his sword at his side,
 flew to the palace. It was a very dark night, and so stormy that the
@@ -666,7 +716,14 @@ and with his sabre cut off the wicked conjuror's head just behind
 the shoulders, so that he could not even see who it was. He threw
 the body into the sea to the fishes, and after dipping the head into
 the water, he tied it up in a silk handkerchief, took it with him to
-the inn, and then went to bed. The next morning he gave John the
+the inn, and then went to bed.
+
+
+
+John completes the third task.
+------------------------------
+
+The next morning he gave John the
 handkerchief, and told him not to untie it till the princess asked him
 what she was thinking of. There were so many people in the great
 hall of the palace that they stood as thick as radishes tied
@@ -710,6 +767,10 @@ at a great distance singing the following song:--
   Till the sole falls from your shoe."
 
 
+
+John frees the princess.
+------------------------
+
 But the princess was still a witch, and she could not love John.
 His fellow-traveller had thought of that, so he gave John three
 feathers out of the swan's wings, and a little bottle with a few drops
@@ -726,7 +787,14 @@ the swan had become white, with a black ring round its neck. John
 allowed the water to close once more over the bird, and at the same
 time it changed into a most beautiful princess. She was more lovely
 even than before, and thanked him, while her eyes sparkled with tears,
-for having broken the spell of the magician. The next day, the king
+for having broken the spell of the magician.
+
+
+
+Companion says farewell.
+------------------------
+
+The next day, the king
 came with the whole court to offer their congratulations, and stayed
 till quite late. Last of all came the travelling companion; he had his
 staff in his hand and his knapsack on his back. John kissed him many
@@ -737,6 +805,11 @@ my debt to you. Do you remember the dead man whom the bad people
 wished to throw out of his coffin? You gave all you possessed that
 he might rest in his grave; I am that man." As he said this, he
 vanished.
+
+
+
+Denoument.
+----------
 
 The wedding festivities lasted a whole month. John and his
 princess loved each other dearly, and the old king lived to see many a
