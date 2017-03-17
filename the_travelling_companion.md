@@ -1,3 +1,91 @@
+Crab and Scorpion
+=================
+
+_Hans Christian Andersen’s "Traveling Companion" retold in Rokugan._
+
+
+
+Setting
+-------
+
+The only L5R books I own are from the first edition of the role-playing game. This means:
+
+* The year is some time between 1100 and 1124 IC.
+* After the "fall" of the Hare.
+* Before the Scorpion Clan Coup.
+
+
+
+Characters
+----------
+
+* __Hida Hogosha:__ Crab Bushi. On a mission to the Crane Clan.
+* __Bayushi Asano:__ Scorpion Shinobi. Accosted by Suzimi (Sparrow) Ashigaru.
+
+
+Summary
+----
+
+Hogosha, a Crab bushi, comes off the wall to prepare for a journey into [Crane?] lands to meet his arranged bride. A scorpion courtier retinue offer to send a bushi to accompany him. THey send Asano, a beautiful young scorpion. The Crab are immediately suspicious, thinking that Asano means to seduce the guileless young Crab, so they warn him away from her. But they can’t refuse the offer. Asano and Hogosha travel together, Asano makes no move of seduction. She steadfastly helps Hogosha. Years ago, he paid her debt and took a whipping for it. She saw him take the whipping, losing some honor for being first in the class for losing the money and being beaten, and she’s overcome at having someone sacrifice something for her. She knows it’s not about her, he sees himself as a shield between the empire and harm, and she decides such a person as him is to be protected.
+
+
+
+Quotes
+------
+
+###The Way of the Scorpion, John Wick
+
+>"Scorpions value loyalty above all else" (81).
+
+>"If anyone--Scorpion, Lion, Crab, Dragon--shows you their heart is loyal, then you have found a resource more precious than gold. Cherish it, protect it, and above all don’t exploit it. Loyalty is hard enough to find in Rokugan, especially for Scorpions. Do not fool around with those who are loyal to you." (81)
+
+
+
+Meeting
+-------
+
+Hida Hogosha wasn’t up to this. A lone bushi, no retainers, no peers… Odds are I’ll be killed. Hogosha accepted inevitable death, but if he died, his mission died with him. Seven breaths, he thought. Make your decision.
+
+I can’t fail Hida Juro. They outnumber me. I probably can’t stop them, anyway. No. I won’t leave this. He loosened his tetsubo. Here goes.
+
+"Leave her be, dogs."
+
+A Sparrow bushi whipped around: "Dogs!? I’ll--" But he stopped when he saw the mon on Hogosha's kimono. "Hida-san! We’ve found a Scorpion spy!"
+
+Hogosha stood at his full height and width, big even for a Crab. "She wronged you?"
+
+"She means us harm!"
+
+Hogosha stared on calmly. They hadn’t attacked. They hesitated. The battle was half-won.
+
+"She’s a Scorpion!" the Sparrow added.
+
+Hogosha looked at her. No mask, disheveled, dirty, half-kneeling on the ground. He looked back at the Sparrow bushi with a raised eyebrow.
+
+"She had this!" The Sparrow flashed a coin.
+
+Hogosha held out his hand… his left hand. His right hand still rested on his tetsubo.
+
+The Sparrow grimaced and flipped the the coin to Hogosha.
+
+The Scorpion mon was struck on the face the coin. Hogosha flipped it in his palm. A single kanji was struck on the other side: Tsuki… Moon… Hogosha looked at her again. She met his eyes calmly. Truly, she was no peasant. Hogosha didn’t break her gaze as he addressed the Sparrow: "Being Scorpion is no crime."
+
+"She’s on Sparrow land!"
+
+Hogosha kept staring the Scorpion girl as he addressed the Sparrow: "Being Scorpion on an Imperial road is also no crime."
+
+"Our Daimyo will decide that. These are his lands."
+
+Hogosha finally looked at the Sparrow. He stalked toward them. "Fools. Scorpions are most dangerous when poked at. I will conduct her to your Daimyo. You dogs will start a clan war… that you’ll beg our help with."
+
+"Arrogant Crab!" The Sparrow Bushi had his sword half-drawn when Hogosha’s tetsubo folded him in half.
+
+Hogosha leveled his tetsubo at the other Sparrow while their leader gasped for breath on the ground.
+
+
+
+
+
 The Travelling Companion
 ========================
 
