@@ -20,24 +20,48 @@ Characters
 ----------
 
 * __Hida Hogosha:__ Crab Bushi. On a mission to the Crane Clan.
-* __Bayushi Asano:__ Scorpion Shinobi. Accosted by Suzimi (Sparrow) Ashigaru.
+* __Bayushi Asano:__ Scorpion Bushi. 
 
 
 Summary
 ----
 
-Hogosha, a Crab bushi, comes off the wall to prepare for a journey into [Crane?] lands to meet his arranged bride. A scorpion courtier retinue offer to send a bushi to accompany him. THey send Asano, a beautiful young scorpion. The Crab are immediately suspicious, thinking that Asano means to seduce the guileless young Crab, so they warn him away from her. But they can’t refuse the offer. Asano and Hogosha travel together, Asano makes no move of seduction. She steadfastly helps Hogosha. Years ago, he paid her debt and took a whipping for it. She saw him take the whipping, losing some honor for being first in the class for losing the money and being beaten, and she’s overcome at having someone sacrifice something for her. She knows it’s not about her, he sees himself as a shield between the empire and harm, and she decides such a person as him is to be protected.
+Hogosha, a Crab bushi, comes off the wall to prepare for a journey into [Crane?] lands to meet his arranged bride.
+
+A scorpion courtier retinue offer to send a bushi to accompany him. THey send Asano, a beautiful young scorpion. The Crab are immediately suspicious, thinking that Asano means to seduce the guileless young Crab, so they warn him away from her. But they can’t refuse the offer. The Scorpion phrase it such that refusing Asano is claiming the Scorpion cannot defend Hogosha. Asano and Hogosha travel together, Asano makes no move of seduction. She steadfastly helps Hogosha. Years ago, he paid her debt and took a whipping for it. She saw him take the whipping, losing some honor for being first in the class for losing the money and being beaten, and she’s overcome at having someone sacrifice something for her. She knows it’s not about her, he sees himself as a shield between the empire and harm, and she decides such a person as him is to be protected.
 
 
 
 Quotes
 ------
 
-###The Way of the Scorpion, John Wick
+###The Way of the Scorpion; John Wick; 
 
 >"Scorpions value loyalty above all else" (81).
 
 >"If anyone--Scorpion, Lion, Crab, Dragon--shows you their heart is loyal, then you have found a resource more precious than gold. Cherish it, protect it, and above all don’t exploit it. Loyalty is hard enough to find in Rokugan, especially for Scorpions. Do not fool around with those who are loyal to you." (81)
+
+###Legend of the Five Rings, Roleplaying Game, 4th Edition; 
+
+>"The Scorpion are the Underhand of the Emperor, the necessary villain that exists to ensure the other clans loathe them and never turn against the Emperor." (68)
+
+>"...the ends justify the means in any situation." (68)
+
+>"Ironically, the Scorpion value Duty as perhaps the only tenet of Bushido worth their attention, the only trait they share with the Crab Clan." (68)
+
+>"To a Scorpion, there is no personal honor, only the honor of the clan and the Empire as a whole." (68)
+
+>"The Bayushi family excels at every aspect of deception, as deadly warriors, skilled infiltrators, and silver-tongued courtiers." (68)
+
+>"Every student in the Bayushi dojo is trained to be the perfect weapon o fdiscord, capable of turning the Clans against one another with minimal effort. Weapons training is only one aspect of their education, which often includes social manipulation, stealth, and even the use of poisons when the student is deemed suitable for such things." (126)
+
+>"The Bayushi Tecniques might best be described as dirty tricks." (126).
+
+>"Scorpion Bushi always seem to get the jump on opponents." (126)
+
+>"The infamous Scorpion feint has been the demise of many foolhardy samurai." (126)
+
+>"
 
 
 
